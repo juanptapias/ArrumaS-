@@ -9,6 +9,9 @@ O projeto divide as tarefas domésticas em pequenas ações diárias, evitando o
 Benefícios do ArrumaSô
 
 ✅ Organização contínua – Nada de passar horas arrumando tudo de uma vez. Com pequenas ações diárias, sua casa estará sempre em ordem.
+
 ✅ Menos estresse – Saber o que precisa ser feito e quando evita a sobrecarga e a procrastinação.
+
 ✅ Facilidade na rotina – As tarefas são distribuídas de forma equilibrada, tornando a organização algo natural no seu dia a dia.
+
 ✅ Ambiente mais agradável – Uma casa limpa e organizada traz mais conforto e bem-estar.
